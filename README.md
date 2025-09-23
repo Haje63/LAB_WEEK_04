@@ -10,4 +10,4 @@
 
 ## Link Aplikasi
 
-[Klik di sini]()
+[Klik di sini](https://drive.google.com/file/d/1JAPvBqHzpCIN5DSeR3KcwX3EwXM6iq-2/view?usp=sharing)
