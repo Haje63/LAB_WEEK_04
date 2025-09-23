@@ -6,7 +6,7 @@
 
 ## Link Screenshot Assignment
 
-[Klik di sini]()
+[Klik di sini](https://drive.google.com/file/d/12fJG2GM-mTZlPEltjBfCAKoQWe03WYfa/view?usp=sharing)
 
 ## Link Aplikasi
 
